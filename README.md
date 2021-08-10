@@ -1,4 +1,4 @@
 # wsg nigga
 
-- i code python.
+- i code js
 - add me on discord waylon#0001
